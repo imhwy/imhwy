@@ -1,6 +1,6 @@
                                                      🎊WELCOME TO MY PROFILE🎊
 **_✨ SELF INTRODUCTION ✨_**
-<img align="right" width="435px" alt="GIF" src="https://i.pinimg.com/originals/29/a8/37/29a8376d76e64b4e891a658a08cdda1a.gif" />
+<img align="right" width="350px" alt="GIF" src="https://i.pinimg.com/originals/29/a8/37/29a8376d76e64b4e891a658a08cdda1a.gif" />
 - 👨🏻‍🎓 Ngô Phúc Danh 
 - 🔖 21521924 
 - 📅 29-11-2003 
